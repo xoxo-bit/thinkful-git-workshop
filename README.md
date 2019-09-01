@@ -55,6 +55,6 @@ ___
 [Gloria Guldager](https://www.github.com/gloguldager)<br/>
 [Praketa Saxena](https://github.com/kethsaxena)<br/>
 [Vsevolod Zhoha](https://github.com/ZhohaVs/)<br/>
-Elif Demir
+[xoxo me] (https://github.com/xoxo-bit/)<br/>
 
 [Thanks, Chris!](https://www.thinkful.com/join/sign-up/)<br/>
